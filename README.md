@@ -1,2 +1,1 @@
-[She/Her]
-Hey gamers
+
